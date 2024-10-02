@@ -6,7 +6,7 @@
 Here are some ideas to get you started:
 
 ## Name 
-## My name is Nadin Ayeh, but you can call me Nads. 
+### My name is Nadin Ayeh, but you can call me Nads. 
 ***If you want to know more about me, follow me on instagram [@nadinkorkor](https://www.instagram.com/)***
 ![a picture of nadin](nadin%20picture.png). <br/>
 *My dream is to become a lawyer and so for undergrad I am double majoring in Psychology & Law, Justice & Society*
