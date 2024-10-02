@@ -13,7 +13,7 @@ Here are some ideas to get you started:
 ## Major
 *My dream is to become a lawyer and so for undergrad I am double majoring in Psychology & Law, Justice & Society*
 ## Program Year
-*I am in my **Final** year of undergad. Can't wait to gradaute in **June** next year!*
+I am in my ***Final*** year of undergad. Can't wait to gradaute in ***June*** next year!
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
