@@ -14,6 +14,6 @@ Here are some ideas to get you started:
 **Bachelor of Arts Double Major in *Psychology & Law, Justice & Society***
 ## Program Year
 I am in my ***Final*** year of undergad. Can't wait to gradaute in ***June*** next year!
-- 😄 Pronouns: ...
+## Why PSYO 3505
 - ⚡ Fun fact: ...
 
