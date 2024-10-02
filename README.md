@@ -17,3 +17,4 @@ I am in my ***Final*** year of undergad. Can't wait to gradaute in ***June*** ne
 ## Why PSYO 3505
 *I enrolled in this course because I've had an interest in coding, Python to be specifc*
 ## Why major in Psychology
+* Studying Psychology will help me earn a certificate in counselling which will me pursue a career in Educational Counselling *
