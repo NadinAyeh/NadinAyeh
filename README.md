@@ -19,3 +19,4 @@ I am in my ***Final*** year of undergad. Can't wait to gradaute in ***June*** ne
 ## Why major in Psychology
 *Studying Psychology will help me earn a certificate in counselling which will me pursue a career in Educational Counselling*
 ## Career Plans 
+*After graduation, I am going to work to save up money to go to Law School*
