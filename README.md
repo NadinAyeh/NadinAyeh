@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 
-## Your Name ##
+## Name ##
 ## My name is Nadin Ayeh, but you can call me Nads. 
 ***If you want to know more about me, follow me on instagram [@nadinkorkor](https://www.instagram.com/)***
 ![a picture of nadin](nadin%20picture.png). <br/>
